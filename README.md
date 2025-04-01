@@ -1,3 +1,3 @@
-# Hi there
+# Hi there 👋
 
-I am Mengrui, a student at Xiamen University!
+🌸I am Mengrui, a student at Xiamen University!
